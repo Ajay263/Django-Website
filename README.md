@@ -1,0 +1,1 @@
+ A portfolio website to show  A small gallery of the recent projects that I have done.I've done them all together with amazing people from companies around the globe.It's only a drop in the ocean compared to the entire list
